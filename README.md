@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gusain2515
-- ready for everyhthing
+- ready for everything
 - can do anyhting
 - 
 
