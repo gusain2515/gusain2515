@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @gusain2515
-- ready for everything
-- can do anything
-- 
+
+
 
 
 <!---
